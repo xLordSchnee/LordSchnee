@@ -1,0 +1,18 @@
+- 👋 Hi, I’m @NikolasPettrup
+- 👀 I’m interested in ...
+  - 🎮 Gaming
+  - 🔴 Streaming
+  - 📷 Photography
+  - 🎨 Drawing
+  - 🎥 Movies and Series
+  - 💻 Programming (of course)
+  - 👨‍🔬 Physics
+  - 🌌 Space
+- 7️⃣ 3️⃣ My favourite number is 73
+- 🌱 I’m currently doing an apprenticeship as application developer.
+- 📫 How to reach me ...
+  - 🐦 Twitter - lyonnicttv
+  - 📸 Instagram - lyonnicttv
+  - 🔴 Twitch - lyonnic
+  - 📧 Email - contact.lyonnic@gmail.com
+  - 👾 Discord - lyonnic#2909
