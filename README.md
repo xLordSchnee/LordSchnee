@@ -2,17 +2,18 @@
 - 👀 I’m interested in ...
   - 🎮 Gaming
   - 🔴 Streaming
+  - 🏈 American Football (Cincinnati Bengals 🧡🖤🐅 Who Dey!)
   - 📷 Photography
   - 🎨 Drawing
   - 🎥 Movies and Series
   - 💻 Programming (of course)
   - 👨‍🔬 Physics
   - 🌌 Space
-- 7️⃣ 3️⃣ My favourite number is 73
+- 7️⃣ 3️⃣ My favourite numbers are 73 and 37 (or 3 or 7 as single ones)
 - 🌱 I’m currently doing an apprenticeship as application developer.
 - 📫 How to reach me ...
-  - 🐦 Twitter - lyonnicttv
-  - 📸 Instagram - lyonnicttv
-  - 🔴 Twitch - lyonnic
+  - 🐦 Twitter - drshirokami
+  - 📸 Instagram - drshirokami
+  - 🔴 Twitch - drshirokami
   - 📧 Email - contact.lyonnic@gmail.com
-  - 👾 Discord - lyonnic#2909
+  - 👾 Discord - Shirōkami#2909
