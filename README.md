@@ -9,11 +9,11 @@
   - 💻 Programming (of course)
   - 👨‍🔬 Physics
   - 🌌 Space
-- 7️⃣ 3️⃣ My favourite numbers are 73, 37, 3 and 7
+- 7️⃣ 3️⃣ My favourite numbers are 3 and 7, so I also like the number 37 and 73
 - 🌱 I’m currently doing an apprenticeship as application developer.
 - 📫 How to reach me ...
   - 🐦 Twitter - sirionGG
   - 📸 Instagram - sirion_gg
-  - 🔴 Twitch - sirionGG (soon)
+  - 🔴 Twitch - sirionGG
   - 📧 Email - contact.lyonnic@gmail.com
-  - 👾 Discord - Sirion#1109
+  - 👾 Discord - Sirion#7812
