@@ -10,7 +10,7 @@
   - 💻 Programming (of course)
   - 👨‍🔬 Physics
   - 🌌 Space
-- 7️⃣ 3️⃣ My favourite numbers are 3 and 7, so I also like the number 37 and 73
+- 3️⃣ 7️⃣ My favourite numbers are 3 and 7 - I also like the numbers 37 and 73
 - 🌱 I’m currently doing an apprenticeship as application developer.
 - 📫 How to reach me ...
   - 🐦 Twitter - sirionGG
