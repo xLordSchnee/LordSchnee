@@ -3,6 +3,7 @@
   - 🎮 Gaming
   - 🔴 Streaming
   - 🏈 American Football (Cincinnati Bengals 🧡🖤🐅 Who Dey!)
+  - 🏈 College Football (LSU Tigers 💜💛🐅)
   - 📷 Photography
   - 🎨 Drawing
   - 🎥 Movies and Series
