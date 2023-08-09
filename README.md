@@ -1,9 +1,10 @@
-- 👋 Hi, I’m @NikolasPettrup
+- 👋 Hi, I’m @xLordSchnee
 - 👀 I’m interested in ...
   - 🎮 Gaming
   - 🔴 Streaming
   - 🏈 American Football (Cincinnati Bengals 🧡🖤🐅 Who Dey!)
   - 🏈 College Football (LSU Tigers 💜💛🐅)
+  - ⚽ Soccer (Borussia Dortmund 🖤💛🐝)
   - 📷 Photography
   - 🎨 Drawing
   - 🎥 Movies and Series
@@ -16,5 +17,4 @@
   - 🐦 Twitter - sirionGG
   - 📸 Instagram - sirion_gg
   - 🔴 Twitch - sirionGG
-  - 📧 Email - contact.lyonnic@gmail.com
-  - 👾 Discord - Sirion#7812
+  - 👾 Discord - SirionGG
